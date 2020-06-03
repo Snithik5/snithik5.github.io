@@ -1,2 +1,2 @@
 # Snithik.github.io
-:Terful joy:
+:laughing:
